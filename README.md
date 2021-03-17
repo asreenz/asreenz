@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @asreenz
+- 👀 I’m interested in experimental funsies
+- 🌱 I’m currently learning javascript
+- 💞️ I’m looking to collaborate on web stuff B^}
+- 📫 How to reach me instagram @gaygraphicdesigner
